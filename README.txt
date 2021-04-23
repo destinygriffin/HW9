@@ -1,1 +1,0 @@
-My name is Destiny Grifffin and I don't have a favorite sports team because I don't like sports.
